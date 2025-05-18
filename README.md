@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NandhanaPramod
-- 🌱 I’m currently learning codes !!
+- 🌱 I’m currently [assioonate in codeing and AI  !!
 - 📫 How to reach me : Drop a query here  nandhanasnowwhite@gmail.com
 
 
